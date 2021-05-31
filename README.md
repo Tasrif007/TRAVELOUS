@@ -8,3 +8,6 @@ Ask this question to 50 different people, and you’ll likely get 50 different a
 “To journey” would perhaps hone in on my definition of travel. It implies moving or going away from one place and ending in another, with some kind of meaningful experience in between. This is definitely the essence of travel. But travel is not that clear-cut.
 
 
+![received_564821667662108](https://user-images.githubusercontent.com/78270149/120138888-35e2b700-c1f9-11eb-9b1c-d417d170764d.jpeg)
+
+
